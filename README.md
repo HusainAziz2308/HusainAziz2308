@@ -11,7 +11,7 @@
 ### 💡 Fun Facts:
 - 🌟 **Pronouns**: He/Him
 - 🎨 When not coding, you'll find me **SimRacing, Playing guitar, Video Editing]**.
-- ⚡ **Fun Fact**: I'm in the Top 5% Sim Racers
+- ⚡ **Fun Fact**: I am also **One of the Top 5% Sim Racers**.
 
 ---
 
